@@ -1,6 +1,6 @@
 🔮 A determined idealist.<br>
 🎓Status:Undergraduate(DLUT-MATH 2019-2023) |•'-'•) ✧<br>
-🔎Orientation:Computer Vision,Computational Biology<br>
+🔎Orientation:Brain-Computer Interfaces, Robotics<br>
 📨Email:kyrinwu@gmail.com<br>
 You can also invite me for a classical concert🎼 or share your new PS5🎮. I am the one who got through Elden Rings in 37 hours!<br>
 Rage, rage against the dying of the light.<br>
